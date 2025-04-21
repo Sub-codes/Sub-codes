@@ -1,5 +1,5 @@
 # 💫 About Me:
-Just a beginner...who wants to wants to make an impact  
+Just a beginner...who wants to make an impact  
 
 
 ## 🌐 Socials:
