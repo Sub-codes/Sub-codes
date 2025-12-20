@@ -1,5 +1,5 @@
 # 💫 About Me:
-SWE@VELRIC
+PRE-SWE@VELRIC
 
 
 ## 🌐 Socials:
