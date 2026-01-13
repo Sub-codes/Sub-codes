@@ -1,5 +1,6 @@
 # 💫 About Me:
-PRE-SWE@VELRIC
+ SWE Asent 
+ PRE-SWE@VELRIC
 
 
 ## 🌐 Socials:
